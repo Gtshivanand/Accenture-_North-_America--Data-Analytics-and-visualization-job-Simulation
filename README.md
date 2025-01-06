@@ -25,7 +25,7 @@ In September 2024, I had the incredible opportunity to step into the shoes of a 
 #Client Presentation: Delivered key findings and strategic recommendations, receiving 90% positive feedback from stakeholders.
 
 ## 🎓 Certification
-![Screenshot 2024-08-23 172833](https://github.com/Gtshivanand/Accenture-_North-_America--Data-Analytics-and-visualization-job-Simulation)
+![Screenshot 2024-08-23 172833](https://github.com/Gtshivanand/Accenture-_North-_America--Data-Analytics-and-visualization-job-Simulation/blob/main/Data%20Analytics%20and%20visualization%20job%20simulation%20certificatejpg.jpg)
 
 ## 🗓️ Project Agenda
 
